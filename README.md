@@ -1,5 +1,5 @@
 # 💫 About Me:
-I code for the love of the game.
+IE @ ITB.
 
 
 ## 🌐 Socials:
